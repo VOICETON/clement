@@ -1,2 +1,2 @@
 # clement
-stronger fund ans selter to ophans[kids]
+stronger fund and selter to ophans[kids need your support ]
